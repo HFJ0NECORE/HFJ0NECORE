@@ -22,15 +22,17 @@ If i stop middle conversation  i’m kinda shy and thinking about some topics to
 zrry if once i sound dry or i miss spell on purpose, i sometimes fidget with my kjeyboard while typing, it helps me somehow,, 0_o
 
 i like ppl who are soft, and who hav a bit of humor on their personality CDKCMDJCJ
+
 i laugh easily, zo donth mind if i laugh randomly or change a topic suddenly in middle of a conversation
+
 i speak english , philippines and a bit of spanish ! [ i prefer talking english, i’m also practicing philippines T_T
 
+MY KINNIES !! ;; Two time and betrayed 1x1x1x1 F! , broker and shuriken P! , thomas ^_^! , angeredfish O! , astro and cosmo D! 
 
-. °  —  ¹ ! ･ ﾟ . ﹏ “  
+. °  —  ¹ ! ･ ﾟ . ﹏ ii love flowerpop + moonflower d! , twochance F! , etcetc !+
 
 my fandoms are in my desc !! but i‘llz talk abt more ! ^_^_^
 
-^_^ / happy world with happy people , forsakenroblosc , dogman , omori , let him go ! , roblox myths ,, ocean terror , inanimate insanity 
-anduh idkz vro
+^_^ / happy world with happy people , forsakenroblosc , dogman , omori , let him go ! , roblox myths ,, ocean terror , inanimate insanity and dandys worl anduh idkz vro
 
 ;; ANDDJDJD FOR LAZT !! prettyplsz tell me if i’m being rude or mean zometimws  i create personalitys depending of the person to make them comfortable and i dont evven notice i’m being mean, if i do, AGAINN !1!1 ttell me prettyplz !  >_<
