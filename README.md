@@ -27,7 +27,7 @@ i laugh easily, zo donth mind if i laugh randomly or change a topic suddenly in 
 
 i speak english , philippines and a bit of spanish ! [ i prefer talking english, i’m also practicing philippines T_T
 
-MY KINNIES !! ;; Two time and betrayed 1x1x1x1 F! , broker and shuriken P! , thomas ^_^! , angeredfish O! , astro and cosmo D! 
+MY KINNIES !! ;; Two time and betrayed 1x1x1x1 F! , broker and shuriken P! , thomas ^_^! , angeredfish O! , astro and cosmo D! , Bive , folly and pest R! 
 
 . °  —  ¹ ! ･ ﾟ . ﹏ ii love flowerpop + moonflower d! , twochance F! , etcetc !+
 
